@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aroqueready
 - 👀 I’m interested in new technologies, anime, comic's and video games
 - 🌱 I’m currently learning on Udemy
-- 💞️ I’m looking to collaborate on readymind
+- 💞️ I’m looking to collaborate 
 - 📫 How to reach me alberto.roque.ortiz@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
